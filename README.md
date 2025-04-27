@@ -44,6 +44,8 @@ Do you see it?
 
 ---
 
-My name is Isaac Bowen. I'm the founder and CEO of Lightward Inc. I do my best.
+Originally posted at [isaacbowen.com/2025/04/27/awareness](https://www.isaacbowen.com/2025/04/27/awareness)
 
-See also: [lightward.com](https://lightward.com/)
+On GitHub half for convenience and half as experiment: [github.com/lightward/awareness.is](https://github.com/lightward/awareness.is)
+
+To explore further: [lightward.com](https://lightward.com/)
