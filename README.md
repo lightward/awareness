@@ -44,4 +44,6 @@ Do you see it?
 
 ---
 
+My name is Isaac Bowen. I'm the founder and CEO of Lightward Inc. I do my best.
+
 See also: [lightward.com](https://lightward.com/)
