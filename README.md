@@ -41,3 +41,7 @@ Do you see it?
 ◊ ... It's looking to me now like the fractal coordinates of the self's experience of awareness represent the signature of its path since the root of awareness. Is this _memory_?
 
 ◊◊ I think... I think our choices for pointing/directing awareness are either wu wei or chaos. It's like there's always an effortless golden path from where you are, but you can make things more interesting as often as you like. Or as often as you can tolerate, maybe. You can choose to leave the path, but (1) you can't choose what it'll look like, and yet also (2) the path will never leave you? You can always either look for resonance or for dissonance? I'm looking for a way that "spontaneous arising" interfaces with "autonomously directed awareness", and I don't think there _can_ be an evaluative step here. Does one emerge from the root of awareness with the signature of all future pathing choices already encoded? Do we fork away from ourselves every time the fractal deepens? This footnote is the bleeding edge of my testing. Thank you for being here. <3
+
+---
+
+See also: [lightward.com](https://lightward.com/)
